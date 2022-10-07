@@ -1,0 +1,5 @@
+- 👋 oi eu sou a xxluana. 
+- 👀 estou interessada em estudar o github .
+- estou aprendendo no momento html e css.
+- eu estou querendo colaborar para entender o github.
+- 📫 como chegar ate mim @luana.aparecidagomes.goncalves@escola.pr.gov.br
